@@ -9,3 +9,9 @@
 ⸝⸝ !!?? ,, **DNI romantic azuretime , pro\darkshippers , soul supporters , under 13 years old + over 18 years old.**
 
 0101 .. ᛝ : *wip*
+
+<img src="https://static.wikia.nocookie.net/forsaken2024/images/5/52/Iknowyoullneverforgiveme.png/revision/latest/scale-to-width-down/250?cb=20250109120910" alt="Azure | FORSAKEN Wiki | Fandom"/><img>
+
+*" Oh Spawn I've got it bad again ,an O-B-S-E-S-S-I-O-N . "* /lyr
+
+𐂯 ;; .. **bisexual , transgender [ ftm ] , demiromantic , goldgender**
