@@ -14,7 +14,8 @@
 
 *" Oh Spawn I've got it bad again ,an O-B-S-E-S-S-I-O-N . "* /lyr
 
-<img width="139" height="157" alt="image" src="https://github.com/user-attachments/assets/c3820f33-fc20-478a-ae7a-f623f09cdc4b" />
+<img width="139" height="157" alt="image" src="https://github.com/user-attachments/assets/c3820f33-fc20-478a-ae7a-f623f09cdc4b" /> <img width="157" height="205" alt="image" src="https://github.com/user-attachments/assets/0c980d51-dca5-41a7-9b1c-392988dbf91a" />
+
 
 
 𐂯 ;; .. **bisexual , transgender [ ftm ] , demiromantic , goldgender**
