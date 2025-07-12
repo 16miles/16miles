@@ -19,3 +19,7 @@
 
 
 𐂯 ;; .. **bisexual , transgender [ ftm ] , demiromantic , goldgender**
+
+!! . 𓂃 : **Hy \ Hym .. He \ Him .. They \ Them .. Spawn \ Spawnself .**
+
+# ꧁⎝ 𓆩༺/꥟\༻𓆪 ⎠꧂
