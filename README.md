@@ -13,7 +13,7 @@
 <img width="187" height="169" alt="image" src="https://github.com/user-attachments/assets/eebd36c1-93f2-4129-8dd3-2f6c04d98183" />
 
 
-*" Oh Spawn I've got it bad again ,an O-B-S-E-S-S-I-O-N . "* /lyr
+*" Don't wanna be another Ashley \ Don't wanna count my fucking calories \ Don't wanna worry 'bout my body so dick-heads will like me ! "* /lyr
 
 *main ponies !*
 :3c <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916752814223/pony-town-im_feral-lie-padded-toy165-4x.png?ex=68764709&amp;is=6874f589&amp;hm=98f80c7348aa3d0c9e7b7df0c3820e54b02cf326d18075e06dba66b9346550ab&amp;=&amp;format=webp&amp;quality=lossless&amp;width=123&amp;height=133" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916543103006/pony-town-_azure_irl__w2i_-_sign_ata-sit-padded-toy268-4x.png?ex=68764709&amp;is=6874f589&amp;hm=1a6201f4b0459bcabce2d5da0a5af0174621814158b77415d43591708db38caa&amp;=&amp;format=webp&amp;quality=lossless&amp;width=149&amp;height=157" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916325261472/pony-town-memento_mori-stand-padded-4x.png?ex=68764709&amp;is=6874f589&amp;hm=0b1a13f148fa7f08a931d9845ed6720221d5cd8c7d6f8c696e4b351dd47eaa3f&amp;=&amp;format=webp&amp;quality=lossless&amp;width=133&amp;height=147" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916987961364/pony-town-_princezam_-_w2i_-_sign_ata-boop-padded-toy367-4x_1.png?ex=68764709&amp;is=6874f589&amp;hm=0435c1d065631a30ba707397cd8eaf7823a004de16aa5a38ea41b7abac2e06c3&amp;=&amp;format=webp&amp;quality=lossless&amp;width=120&amp;height=168" alt="Image"/><img>
