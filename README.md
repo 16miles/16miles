@@ -4,7 +4,7 @@
 
 <img src="https://media.tenor.com/ShUAKHt5UVkAAAAM/let-him-go-roblox-roblox.gif" alt="Broken Spawn Let Him Go Roblox Meme - Broken spawn Let him go roblox Let  him go - Discover &amp; Share GIFs"/><img>
 
-𓏵 ,, _ azure irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]**
+𓏵 ,, _ azure irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]** . . *mentally ill , always iwec . audhd - c.ptsd - suspected bpd . . hvy mood swings.*
 
 ⸝⸝ !!?? ,, **DNI romantic azuretime , pro\darkshippers , soul supporters , under 13 years old + over 18 years old.**
 
