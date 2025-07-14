@@ -2,7 +2,7 @@
 
 ! praise and honour the spawn .
 
-<img src="https://media.tenor.com/STCUfNCwzCgAAAAM/azuretime-azuretime-forsaken.gif" alt="Azure Twotime GIF - Azure Twotime Two time - Discover ..."/><img>
+<img src="https://media.tenor.com/ShUAKHt5UVkAAAAM/let-him-go-roblox-roblox.gif" alt="Broken Spawn Let Him Go Roblox Meme - Broken spawn Let him go roblox Let  him go - Discover &amp; Share GIFs"/><img>
 
 𓏵 ,, _ azure irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]**
 
@@ -10,11 +10,15 @@
 
 0101 .. ᛝ : *wip*
 
-<img src="https://static.wikia.nocookie.net/forsaken2024/images/5/52/Iknowyoullneverforgiveme.png/revision/latest/scale-to-width-down/250?cb=20250109120910" alt="Azure | FORSAKEN Wiki | Fandom"/><img>
+<img width="187" height="169" alt="image" src="https://github.com/user-attachments/assets/eebd36c1-93f2-4129-8dd3-2f6c04d98183" />
+
 
 *" Oh Spawn I've got it bad again ,an O-B-S-E-S-S-I-O-N . "* /lyr
 
-<img width="139" height="157" alt="image" src="https://github.com/user-attachments/assets/c3820f33-fc20-478a-ae7a-f623f09cdc4b" /> <img width="157" height="205" alt="image" src="https://github.com/user-attachments/assets/0c980d51-dca5-41a7-9b1c-392988dbf91a" />
+*main ponies !*
+:3c <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916752814223/pony-town-im_feral-lie-padded-toy165-4x.png?ex=68764709&amp;is=6874f589&amp;hm=98f80c7348aa3d0c9e7b7df0c3820e54b02cf326d18075e06dba66b9346550ab&amp;=&amp;format=webp&amp;quality=lossless&amp;width=123&amp;height=133" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916543103006/pony-town-_azure_irl__w2i_-_sign_ata-sit-padded-toy268-4x.png?ex=68764709&amp;is=6874f589&amp;hm=1a6201f4b0459bcabce2d5da0a5af0174621814158b77415d43591708db38caa&amp;=&amp;format=webp&amp;quality=lossless&amp;width=149&amp;height=157" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916325261472/pony-town-memento_mori-stand-padded-4x.png?ex=68764709&amp;is=6874f589&amp;hm=0b1a13f148fa7f08a931d9845ed6720221d5cd8c7d6f8c696e4b351dd47eaa3f&amp;=&amp;format=webp&amp;quality=lossless&amp;width=133&amp;height=147" alt="Image"/><img> <img src="https://media.discordapp.net/attachments/1276580446519689289/1394291916987961364/pony-town-_princezam_-_w2i_-_sign_ata-boop-padded-toy367-4x_1.png?ex=68764709&amp;is=6874f589&amp;hm=0435c1d065631a30ba707397cd8eaf7823a004de16aa5a38ea41b7abac2e06c3&amp;=&amp;format=webp&amp;quality=lossless&amp;width=120&amp;height=168" alt="Image"/><img>
+
+
 
 
 
