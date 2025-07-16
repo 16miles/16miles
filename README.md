@@ -1,6 +1,6 @@
 # →﹐ 🪭 ﹒ mapicc !﹒⟢
 
-! fish fillet duo . devotion duo . dandelion duo . devious duo !
+! fish fillet duo . devotion duo . dandelion duo . devious duo , spacebomb duo !
 
 <img src="https://media.tenor.com/qrmlFqq9Ey0AAAAM/lifesteal-mapicc.gif" alt="Mapicc Lifesteal GIF - Mapicc Lifesteal - Discover &amp; Share GIFs"/><img>
 
