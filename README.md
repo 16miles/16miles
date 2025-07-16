@@ -1,16 +1,16 @@
-# ꧁⎝ 𓆩༺/꥟\༻𓆪 ⎠꧂
+# →﹐ 🪭 ﹒ mapicc !﹒⟢
 
 ! praise and honour the spawn .
 
-<img src="https://media.tenor.com/ShUAKHt5UVkAAAAM/let-him-go-roblox-roblox.gif" alt="Broken Spawn Let Him Go Roblox Meme - Broken spawn Let him go roblox Let  him go - Discover &amp; Share GIFs"/><img>
+<img src="https://media.tenor.com/qrmlFqq9Ey0AAAAM/lifesteal-mapicc.gif" alt="Mapicc Lifesteal GIF - Mapicc Lifesteal - Discover &amp; Share GIFs"/><img>
 
-𓏵 ,, _ azure irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]** . . *mentally ill , always iwec . audhd - c.ptsd - suspected bpd . . hvy mood swings.*
+𓏵 ,, _ azure & mapicc irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]** . . *mentally ill , always iwec . audhd - c.ptsd - suspected bpd . . hvy mood swings.*
 
 ⸝⸝ !!?? ,, **DNI romantic azuretime , pro\darkshippers , soul supporters , under 13 years old + over 18 years old.**
 
 0101 .. ᛝ : *wip*
 
-<img width="187" height="169" alt="image" src="https://github.com/user-attachments/assets/eebd36c1-93f2-4129-8dd3-2f6c04d98183" />
+<img src="https://media.discordapp.net/attachments/1276580446519689289/1394892997203591209/203f21cbd57bd014e23173b32cac3834-removebg-preview-removebg-preview.png?ex=687876d6&amp;is=68772556&amp;hm=514017ed673f5f389842f23327aa98614c06be1a3da5f9d841bd54cdaccf2f9a&amp;=&amp;format=webp&amp;quality=lossless&amp;width=957&amp;height=957" alt="Image"/><img>
 
 
 *" Don't wanna be another Ashley \ Don't wanna count my fucking calories \ Don't wanna worry 'bout my body so dick-heads will like me ! "* /lyr
@@ -26,4 +26,7 @@
 
 !! . 𓂃 : **Hy \ Hym .. He \ Him .. They \ Them .. Spawn \ Spawnself .**
 
-# ꧁⎝ 𓆩༺/꥟\༻𓆪 ⎠꧂
+# →﹐ 🪭 ﹒ mapicc !﹒⟢
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31toj3m5rauqrags6bdqpubi2elu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=9e1515&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
