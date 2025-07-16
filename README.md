@@ -2,7 +2,8 @@
 
 ! fish fillet duo . devotion duo . dandelion duo . devious duo , spacebomb duo !
 
-<img src="https://media.tenor.com/qrmlFqq9Ey0AAAAM/lifesteal-mapicc.gif" alt="Mapicc Lifesteal GIF - Mapicc Lifesteal - Discover &amp; Share GIFs"/><img>
+<img src="https://pbs.twimg.com/media/GYvEX2jXgAAuW59?format=jpg&amp;name=small" alt="Image"/><img> hey ladies..
+
 
 𓏵 ,, _ azure & mapicc irl - 15 y/o , **iwvec doubles** .. **DNI if you share one of my non-sharing yumeships [ find them in my pronouns.cc ]** . . *mentally ill , always iwec . audhd - c.ptsd - suspected bpd . . hvy mood swings.*
 
