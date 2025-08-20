@@ -3,4 +3,6 @@
 ─
 
 ⠀⠀⠀⠀⠀@ 2cvit⠀⠀──⠀⠀15 y/o ,, hy \ that ,, w2i & int heavily incouraged .⠀──⠀I like yungy , rek , planet , clown , 4c & mapicc .
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prn.cc \ 01](https://pronouns.cc/@4cvit)⠀⠀──⠀⠀[prn.cc \ 02](https://pronouns.cc/@parrots)
+<img width="117" height="117" alt="dbf2fdeade81640b1d2a4649d8c409f4-removebg-preview" src="https://github.com/user-attachments/assets/f100bb70-912c-43c5-a1ce-edf31073a7a5" />
+
